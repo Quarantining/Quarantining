@@ -1,1 +1,1 @@
-Hello!
+Beginner learning Python & AI
