@@ -1,1 +1,1 @@
-Beginner learning Python & AI
+✧.*ヽ(^-^*)/ * .✧ beginner learning python and machine learning 
