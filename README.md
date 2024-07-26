@@ -1,1 +1,1 @@
-✧.*ヽ(^-^*)/ * .✧ beginner learning python and machine learning 
+✧.*ヽ(^-^*) / * .✧ beginner learning python and machine learning 
